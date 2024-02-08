@@ -1,1 +1,1 @@
-![li li li li li li li li li li li li li li li li li li li](https://avatars.githubusercontent.com/u/159464188?s=200&v=4)
+![li li li li li li li li li li li li li li li li li li li](https://raw.githubusercontent.com/LithiumSolutions/.github/main/assets/Lithium.png)
